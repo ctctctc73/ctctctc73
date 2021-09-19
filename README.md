@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ctctctc73
+- 👋 Hi, I’m CHAN TEIK CHUN
 - 👀 I’m interested in ... Anime, Rock Music, Games, Basketball hahaha <3
 - 🌱 I’m currently learning ... Management Maths with Computing 
 - 💞️ I’m looking to collaborate on ...
